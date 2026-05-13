@@ -1,4 +1,4 @@
-# 
+# Notion for Windows updated Script: rich-text-editing & folders offers the most advanced Notion for Windows script, with rich-text-editing and folders. Ideal for Windows
 
 
 
